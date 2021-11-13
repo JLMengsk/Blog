@@ -184,23 +184,53 @@ __*105*__
 ### 11.12
 
 
-__*111 *__
+__*111 Who are you? (What are you?)Einstein?*__
 
->-
+>-How can I fall in love?
 
->-
+>-Well, you need to stimulate your brain.
 
->-
+>-What?
 
->-
+>-You need an increase in __dopamine__ and __norepinephrine__ which will make you feel "love".
 
+>-Who are you? Einstein?
 ---
-__*112: *__ 
->-
->-
+__*112: Beats me*__  = I don't know.
+>-Is Pluto still considered at plant?
+
+>-Beats me.
+
+>-Well, in my book it is. 
+
+>-Who are you? Carl Sagan?
 
 ---
 __*106*__
+
+>One of ~~h~~is 1s(t t)rips will be to the US for a NATO summit(_meeting_) where he wi(ll a)nnounce that he is pulling French troops(_soldiers_) out of Afghanistan by the end o~~f~~ the year.
+
+---
+### 11.13
+
+
+__*113 *__
+
+>-
+
+>-
+
+>-
+
+>-
+
+---
+__*114: *__ 
+>-
+>-
+
+---
+__*107*__
 
 >
 
