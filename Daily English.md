@@ -214,23 +214,47 @@ __*106*__
 ### 11.13
 
 
-__*113 *__
+__*113 bit the dust*__(people or things dead)
 
->-
+>-Where is your friend?
 
->-
+>-What?
 
->-
+>-Your MP3 player! You're always listening to it~
 
->-
+>-I dropped it, and it bit the dust~~
 
 ---
-__*114: *__ 
->-
->-
+__*114 bit me*__(do not use this) 
+>-Are you sick?
 
+>-Bite me~
+
+>-What? You look pale...
+
+>-Ugh! I just found out my girlfriend is seeing someone else!
 ---
 __*107*__
+
+>When you can't(_can_) smoke, if you stand and stare out of the window on your own, you're an anti-social friendless idiot. If you stand and stare out o~~f~~ the window on your own with a cigarette, you're a fucking philosopher!
+
+
+---
+
+### 11.14
+
+__*115 *__
+>-
+
+>-
+
+---
+__*116: *__ 
+>-
+>-
+
+---
+__*108*__
 
 >
 
