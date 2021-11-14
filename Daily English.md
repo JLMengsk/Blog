@@ -243,18 +243,49 @@ __*107*__
 
 ### 11.14
 
-__*115 *__
->-
+__*115 No ifs, ands or buts!*__
+>-I want that report on my desk by 5.
 
->-
+>-5? It's 4 o'clock now.
+
+>-No ifs, ands or buts. 5!
+
+>-Alright..
 
 ---
-__*116: *__ 
->-
->-
+__*116: Damned if I do, damned if I'don't*__ 
+>-Are you going to the commpany dinner?
+
+>-If I go, my wife will be mad. If I don't go, the boss will be mad~
+
+>-You're damned if you do, damned if you don't!
+
+>-Damn it!
 
 ---
 __*108*__
+
+>Gonna eat~that? (_Are you going to_)
+
+>__Have~at~it__. (Go head/Help yourself)
+
+>Did you just ask my permission before you took my food?
+
+---
+### 11.15
+
+__*117 *__
+>-
+
+>-
+
+---
+__*118: *__ 
+>-
+>-
+
+---
+__*109*__
 
 >
 
