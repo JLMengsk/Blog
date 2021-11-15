@@ -131,7 +131,7 @@ __*104*__
 
 >Okay, you know what?
 
->How(_HA_) abou~~t~~ (_d_) a little phone number ?rhtym, huh? you know?
+>How(_HA_) abou~~t~~ (_d_) a little phone number rhtym, huh? you know?
 
 >A little bum-bum-pa...
 
@@ -173,7 +173,7 @@ __*105*__
 
 >Yep.
 
->A bird in the hand is worth?
+>A bird in the hand is worth? (two birds in the bush)
 
 >A million?
 
@@ -274,18 +274,44 @@ __*108*__
 ---
 ### 11.15
 
-__*117 *__
->-
+__*117 hard to beat*__ = is the best
+>-Who do you think will win the match?
 
->-
+>-Between Spain and the US?
 
+>-Yeah.
+
+>-Spain will be hard to beat!
 ---
-__*118: *__ 
->-
->-
+__*118:out of(_outta_) the blue/ out of the clear blue sky *__ = suddenly
+>-You're all wet.
+
+>- I know! Out of the blue it started to rain~
+
+>-It rained?
+
+>-Yes, it totally surprised everyone~
 
 ---
 __*109*__
+
+>One o~~f~~ Switzerland's predominant cities, Basel lies on the Swiss border of France and Germany.
+
+---
+### 11.16
+
+__*119 *__
+>-
+
+>-
+
+---
+__*120: *__ 
+>-
+>-
+
+---
+__*110*__
 
 >
 
