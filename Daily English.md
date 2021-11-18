@@ -300,31 +300,108 @@ __*109*__
 ---
 ### 11.16
 
-__*119 *__
->-
+__*119 low-key*__ (_use for people or color_)
+>-My favorite actor is Tom Hanks.
 
->-
+>-Why's that?
+
+>-He's great on-screen and low-key off screen.
+
+>-Yor're right! He's never in the news like Lady Gaga!
 
 ---
-__*120: *__ 
->-
->-
+__*120: what d~~o~~ y~~ou~~ say we...*__  = How about / Let's do
+>-I'm bored.
+
+>-What do you say we watch a movie?
+
+>-Sure! What do you wanna see?
+
+>-How about... Titanic?
 
 ---
 __*110*__
 
->
-
->
-
->
-
->
-
->
-
->
-
->
+>Even from very early(_the beginning_) on (when we were just building this thing), for one school, there was this concept(_idea_) of what it could turn into we just weren't sure then that we would be the ones(_people or community_) who did it.
 
 ---
+### 11.17
+
+__*121 another nail in the coffin*__ ---_the final nail in the coffin_ (the bad/unhealthy future, could use for a company)
+
+>-The iPhone 4 power cable doesn't work on the iPhone 5.
+
+>-That's stupid.
+
+>-This is another nail in their coffin.
+
+>-They're not doing well since Steve Jobs died...
+
+---
+__*122: high-pofile*__ (--__low-key__)
+>-We need to grow our classes.
+
+>-Yes. We need to be more high-profile.
+
+>-Any ideas on how we do that?
+
+>-Buy everyone who joins a free car?
+---
+__*111*__
+
+>Keeping future resources __intact__ means keeping present consumption in check. And that's why we promote green ways of living and working.
+
+---
+### 11.18
+
+__*123 It spoke to me*__
+>-This painting is SO ugly.Why did you buy it?
+
+>-It spoke to me.
+
+>-What did it say?
+
+>-No! Look at it. It shows the meaning of life.
+
+---
+__*124:Grow up!*__ (not to your boss) be mature
+>-Are you playing a video game?
+
+>-No. It's a simulation game.
+
+>-Grow up!
+
+>-Look at you! Wearing "Hello Kitty" pajamas.
+---
+__*112*__
+
+>It's maddening(_frustrating_)-- texting while walking. One town is saying it's time to level fines against people (_give gine to people_)who walk into the streets (with their) head(s) down - everybody else trying to dodge(avoid) them.
+---
+### 11.19
+
+__*125 *__
+>-
+
+>-
+
+>-
+
+>-
+
+---
+__*126: *__ 
+>-
+
+>-
+
+>-
+
+>-
+---
+__*113*__
+
+>
+
+
+---
+
